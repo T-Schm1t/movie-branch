@@ -1,1 +1,1 @@
-Zie hier de code vand e website
+Zie hier de code van de website
